@@ -1,1 +1,0 @@
-# ritcheyandai_png_to_jpg_i1
